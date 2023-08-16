@@ -1,0 +1,1 @@
+# Patika-Bitirme-Projesi-Garanti-Becoder
